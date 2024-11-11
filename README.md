@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kalijee
-- 👀 I’m interested in pingpang
+- 👀 I’m interested in pingpong
 - 🌱 I’m currently learning cyber security
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
